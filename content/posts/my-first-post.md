@@ -14,7 +14,7 @@ Engage in campus life
 
 Make new friends
 
-You are outside of your native area and into a foreign culture. The first and best thing you can do is make friends. You obviously will still miss your old friends but there is no limit to number of friends you can make. Living in university with students from different countries would give you opportunity to build a giant network of friends, and in future no matter wherever you travel towards for vacation, business or study, you will likely have a friend close by.
+You are outside of your native area and into a foreign culture. The first and best thing you can do is make friends. You obviously will still miss your old friends but there is no limit to number of friends you can make. <a href="https://www.kansaz.in/study-visa/">Migrating and Living in International universities</a>  with students from different countries would give you opportunity to build a giant network of friends, and in future no matter wherever you travel towards for vacation, business or study, you will likely have a friend close by.
 
 Talk to others about homesickness
 
@@ -35,6 +35,53 @@ Eating a meal is an important activity in many cultures. In many cultures famili
 Be a tourist
 
 Visiting new places as a tourist seldomly makes anyone feel homesick because they are excited by the new experiences and want to absorb as much of the locale as you can. Approaching university life with same sense of exploration can result in having some really nice experiences. Find a favourite spot to study, find new paths between your dorm and campus buildings. Seek out a restaurant that serves food from your home country.
+
+Limit communication from friends and family back home
+
+Missing someone automatically makes you lean towards them further and also prevents you from forming new alliances. Talking to them any less will not break your old and strong bonds but being constantly busy in them will stop you from making new good ones here. It is important to give them updates about your life but you also need to live the life you are giving them the updates about. Explore your
+surroundings and take pictures of stuffs you like. You will enjoy the place more when you start to really look at it.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+, find new paths between your dorm and campus buildings. Seek out a restaurant that serves food from your home country.
 
 Limit communication from friends and family back home
 
