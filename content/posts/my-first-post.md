@@ -1,4 +1,2 @@
-<a href="https://www.kansaz.in/">overseas</a>
-
-
+8 ways to make most of the life at university
 
